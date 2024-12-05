@@ -8,9 +8,9 @@
 ---
 
 ### 🌐 **快速访问入口**  
-- ❤️ 最新发布页:https://十二春宫.dizhi77.top
-- ❤️ [官方网站](https://app.dizhi77.top)  
-- ❤️ [备用入口](https://官网.dizhi77.top/)  
+- ❤️ 最新发布页:https://十二春宫.dizhi88.top
+- ❤️ [官方网站](https://app.dizhi88.top)  
+- ❤️ [备用入口](https://官网.dizhi88.top/)  
 - **永久更新页面**：https://wangjidizhi.com
 
 📧 **如果以上链接无法打开**  
